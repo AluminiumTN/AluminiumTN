@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **dsq smp**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://discordapp.com/users/433946205983342593/</h3>
 <p align="left">
 </p>
 
